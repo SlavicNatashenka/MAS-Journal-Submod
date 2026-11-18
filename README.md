@@ -19,3 +19,5 @@ Put as many images: .png or .jpg (Any name) into Submods/Journal Submod/Photos/ 
 PS: Its best to back up your game and persistant file before use
 
 ENJOY! ◝(ᵔᗜᵔ)◜
+
+REDISTRIBUTION, REPOSTING, MODIFICATION, MONETIZATION, OR DONATION-LINKED RE-USE OF THIS IS STRICTLY PROHIBITED WITHOUT PERMISSION. THANK YOU.
